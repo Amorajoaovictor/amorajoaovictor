@@ -23,7 +23,7 @@ Sou apaixonado por tecnologia, programação e desenvolvimento de soluções ino
 
 ## 🐍 Snake Game das Contribuições
 
-![Snake animation](https://github.com/amorajoaovictor/amorajoaovictor/blob/output/github-contribution-grid-snake.svg)
+![Snake animation](https://github.com/Amorajoaovictor/amorajoaovictor/blob/main/output/github-contribution-grid-snake.svg)
 
 ---
 
