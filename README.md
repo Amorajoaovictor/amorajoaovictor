@@ -1,6 +1,6 @@
 # Olá! 👋 Eu sou o João Victor
 
-🇧🇷 Português | [🇺🇸 English](README.en.md)
+### 🇧🇷 Português | [🇺🇸 English](README.en.md)
 
 Bem-vindo ao meu perfil!  
 Sou apaixonado por tecnologia, programação e desenvolvimento de soluções inovadoras. 🚀
