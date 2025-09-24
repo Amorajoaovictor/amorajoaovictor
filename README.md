@@ -30,3 +30,28 @@ Sou apaixonado por tecnologia, programação e desenvolvimento de soluções ino
 ---
 
 *Obrigado por visitar meu perfil!*
+
+
+
+![images](https://github.com/user-attachments/assets/6e8833e1-4b1b-4156-90d4-e13c2e504274)
+
+![images](https://github.com/user-attachments/assets/6e8833e1-4b1b-4156-90d4-e13c2e504274)
+
+
+![images](https://github.com/user-attachments/assets/6e8833e1-4b1b-4156-90d4-e13c2e504274)
+
+
+![images](https://github.com/user-attachments/assets/6e8833e1-4b1b-4156-90d4-e13c2e504274)
+
+
+![images](https://github.com/user-attachments/assets/6e8833e1-4b1b-4156-90d4-e13c2e504274)
+
+
+![images](https://github.com/user-attachments/assets/6e8833e1-4b1b-4156-90d4-e13c2e504274)
+
+
+![images](https://github.com/user-attachments/assets/6e8833e1-4b1b-4156-90d4-e13c2e504274)
+
+
+![images](https://github.com/user-attachments/assets/6e8833e1-4b1b-4156-90d4-e13c2e504274)
+
